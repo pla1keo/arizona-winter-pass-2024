@@ -1,1 +1,0 @@
-# arizona-winter-pass-2024
